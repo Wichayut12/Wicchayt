@@ -1,1 +1,1 @@
-# Wicchayt
+# Wichayt
